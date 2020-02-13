@@ -8,3 +8,5 @@ He writes, "I still have trouble getting my iPhone to work with Google Play when
 
 
 I find the line, "you’re not bored because the topic is boring. Chances are you’re bored because you don’t understand it" very truthful as any subject has interesting aspects to everyone. - Eric Wu
+
+I liked this article because it gave the perspective of someone who lived through the rapid development of computers from punch cards to smart phones, and it shows how they learned to deal emotionally and professionally with how quickly systems they enjoyed working with and were accustomed to developed, changed, or died off. - Eliana Villafranca
